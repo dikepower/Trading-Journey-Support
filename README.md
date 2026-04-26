@@ -5,7 +5,7 @@ Welcome to the official support page for **Trading Journey**. Our mission is to 
 ## 📧 Contact Support
 If you have questions, feedback, or need technical assistance, please reach out directly:
 
-**Email:** [hongxin126@gmail.com](mailto:hongxin126@gmail.com)
+**Email:** [netshare51@gmail.com](mailto:netshare51@gmail.com)
 
 ---
 
